@@ -13,4 +13,4 @@ shirleynapole@gmail.com
 @shirleynapole
 
 
-![](https://tenor.com/pt-BR/view/luv-luv-u-love-you-love-you-too-i-love-you-gif-14228675652382562390)
+![](https://tenor.com/pt-BR/view/hug-gif-26044021)
